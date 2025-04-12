@@ -1,3 +1,4 @@
-Once upon a time, a robot and a wizard met in a coffee shop...
+The cowboy nervously sipped his latte while the alien pulled out a mysterious glowing map.
+
 
 
