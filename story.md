@@ -1,4 +1,3 @@
-The cowboy adjusted his hat and leaned in.
-"You're not from around here, are you?" he asked.
-The alien grinned, revealing three rows of glowing teeth.
+Once upon a time, a robot and a wizard met in a coffee shop...
+
 
